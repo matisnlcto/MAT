@@ -12,4 +12,4 @@ y situaciones oscuras.
 los mantendrán unidos hasta que se resuelva el misterio...”
 La producción de esta serie está basada en la primera novela de McManus, quien la publicó en 2017.
 Ese mismo año, Universal Content Productions anunció que había adquirido los derechos de la 
-ficción juvenil. Para 2019, el proyecto fue girado a NBC Universal. 
+ficción juvenil. Para 2017, el proyecto fue girado a NBC Universal. 
